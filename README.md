@@ -1,2 +1,2 @@
-# Lab1_Ashesi_Premier_League_-57462028-
+# Lab1_Ashesi_Premier_League_57462028
 # Lab 1
